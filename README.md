@@ -1,1 +1,1 @@
-This are some of my older and simpler projects.
+Theese are some of my older and simpler projects.
